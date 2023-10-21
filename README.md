@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SohrabSoheili
-- 👀 I’m interested in Crypocurremcies And The financial Project
+- 👀 I’m interested in Crypocurremcies And The financial Projects
 - 🌱 I’m currently learning About Economic 
 - 💞️ I’m looking to collaborate on My Projects
 - 📫 How to reach me With My Mail account
